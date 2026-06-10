@@ -2,4 +2,5 @@
 
 🌱 I’m currently learning GitHub  
 💻 I love coding and sharing projects  
-📫 Reach me at: [your email or social link]  
+📫 Reach me at: a211466@siswa.ukm.edu.my 
+
